@@ -1,1 +1,1 @@
-# sunshine-3
+One of my hobbies is learning new languages. I am a linguaphile. A linguaphile is used to refer to a person that loves learning new languages. I speak four langauges fluently which are English, Arabic, Tiginiya and American sign language. I am now actively trying to learn Amharic and Spanish. I can proudly say that I understand 80% of conversations in Amharic and am curretly trying to break my shell and build the courage to speak it. As for Spanish I am still in beginners level.
